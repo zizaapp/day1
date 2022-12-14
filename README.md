@@ -1,1 +1,4 @@
-this is note written while taking the geez tech security tester@ course.
+- 👋 Hi, I’m @zizaapp
+- 👀 I’m youtuber, progmmer
+- 🌱 I hope 
+- 💞️ I’m looking to collaborate on youtube https://www.youtube.com/channel/UC9U6nydjNUAxzxvT4RcUAgQ
