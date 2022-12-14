@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @zizaapp
 - 👀 I’m youtuber, progmmer
-- 🌱 I hope 
+- 🌱 I hope enjoy my note 
 - 💞️ I’m looking to collaborate on youtube https://www.youtube.com/channel/UC9U6nydjNUAxzxvT4RcUAgQ
